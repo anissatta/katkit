@@ -668,6 +668,8 @@
 
 ![e5](e5.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-25.mp4)
+
 仕方なく新聞は諦めてスネ駅(ロッテデパート)の建物内を抜けてJJホテルに入りました。
 
 ![e6](e6.jpg)
@@ -682,6 +684,12 @@
 
 ![e9](e9.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-26.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-27.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-28.mp4)
+
 そこからソウル駅までは行きと同様の経路を利用しました。
 
 ![f0](f0.jpg)
@@ -692,6 +700,16 @@
 
 ![f3](f3.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-29.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-30.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-31.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-38.mp4)
+
+[:movie_camera: 関連動画5](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-39.mp4)
+
 ソウルで軽く昼食をとるつもりでいましたが、ソウル駅内の航空鉄道駅方面に向かうエスカレーターの側に「オムク」(韓国のかまぼこですが、そのかまぼこを煮たおでんのような料理をも意味すると思います)という表示が見えたので近くに行ってみるとキンパやトッポギ、(インスタント)ラーメン等が記載されたメニューが目に入ってきました。最初ラーメン(韓国式のスライスされた餅が入ったのとか、チーズが入ったのもありました)を頼もうかと思いましたが朝もラーメンだったのを思い出しトッポギを頼むことにしました。店内に入ると入口から向かって奥にテーブルが3つか4つあり、それらは全て埋まっていましたが右側の方にステンレス製の台がありそこで立って食べることも出来そうな気がしました。左側のキッチンと計算台がある所に行ってトッポギを注文しましたが、現金で支払ったからかレシートをもらうことは出来ませんでした。しばらく計算台の前に立っていると(そこにはオムクに刺さっていたものと思われる長い串が立てかけられていました)手前の座席にいた家族連れが退出されました。その後もキッチンを覗いたりしていましたが、フライパンのようなものに細かく刻んだ人参を入れたりされていたのであれが私が注文したトッポギかな、と思いました。その後大きなキャリーケースを持った二人連れが入ってきたのですが、店員が彼らに向かって「チャリ　オッゾヨ」(席がありません)と言うので彼らは「チャリ　オッゾヨ?」(席がないのですか)と行って去っていかれました。その後その店員は私にそのさっき空いた席に着くようにとの仕草をしました。その後サラリーマン風の男性が入店しオムクを立ったまま食べていたりしましたが、まもなく私が注文したトッポギが出来上がったので計算台の近くにあった箸とスプーンを取って食事を始めました。
 
 ![f4](f4.jpg)
@@ -699,6 +717,16 @@
 ![f5](f5.jpg)
 
 ![f6](f6.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-40.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-42.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-43.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-44.mp4)
+
+[:movie_camera: 関連動画5](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-45.mp4)
 
 この店ですが、下記の記事にある「마리짱」で間違いないと思います。
 
@@ -717,6 +745,14 @@
 ![g1](g1.jpg)
 
 ![g2](g2.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-47.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-51.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-53.mp4)
+
+[:movie_camera: 関連動画 :cat: ](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-52.mp4)
 
 それからセキュリティーゲートに向かいましたがここでは何故か簡単なボディーチェックがありました。それから自動ドアをくぐって免税店などがある出発ゲート広場のような所に着きましたが私が乗る予定のエアソウルRS715便は42番ゲートから出るとのことだったのでそこに行ってみると恐らく私がブログで報告した「出発ゲートが42番である」との情報を確かめに来たか、私がゲート前に来るかを見に来たと思われる人々がおり彼らは一様にがっかりした表情を浮かべていました。搭乗開始までは少し時間があったのでテレビを見たり(ニュース番組の他に日本でも見るような通信販売の番組が映し出されていました)、窓側に設置されている無料インターネット閲覧機をいじったりしました。(これはキーボードもポインティングデバイスも全て金属製でした)この時テレビの前に座っていると前から杖をついた韓国人と思われる年配の方が来られましたが、どうも普通の方とは思えなかったので一瞬彼女の親族の方かと思いましたがよく分かりませんでした。この方はピンクのネクタイをされており、私の横を何度か行ったり来たりされ、その後私が座っていたテレビ前の座席とテレビとの間を通って反対側(窓側)に移動されそのまま去っていかれました。
 
