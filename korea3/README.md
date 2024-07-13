@@ -499,6 +499,16 @@
 
 ![a5](a5.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-84.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-85.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-86.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-87.mp4)
+
+[:movie_camera: 関連動画5](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-88.mp4)
+
 食事を終えトレイを奥に持って行き、店員にカンサハプニダ、アンニョンハセヨ、と言って店を出ました。この店についての記事を見つけたので以下にリンクを貼っておきます。
 
 - https://blog.naver.com/PostView.nhn?blogId=930719h&logNo=222928289029
@@ -507,9 +517,19 @@
 
 ![a6](a6.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-90.mp4)
+
 先程購入した「ハンギョレ」を使って自分が室内にいることを示すいつもやっている方式で動画を撮影し、それらをホームページにアップロードしました。それから遅い時間に酒を飲みましたが、韓国で売っているペットボトルのチャミスルは量が多いのと、つまみを買わなかったので翌日二日酔いに苦しめられることになりました。
 
 ![a7](a7.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-92.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-93.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-97.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-98.mp4)
 
 ### 2024年7月10日
 朝起きた時点ではまだ二日酔いの症状が自覚出来ていなかったのでラーメンを作って食べ、早い時間に外を散歩することにしました。
