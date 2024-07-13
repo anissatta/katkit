@@ -96,11 +96,23 @@
 
 ![18](18.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-35.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-36.mp4)
+
 前回ソンナム市を訪問した際には月の市が開催されたりするモランやキューブ美術館(ソンナムアートセンター)があるイメなどといった駅で降りたのですが、今回はそれより更に先のスネ駅で降りました。
 
 ![19](19.jpg)
 
 ![20](20.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-37.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-38.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-39.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-40.mp4)
 
 後で気づいたことですがこの駅の隣にはソヒョンという駅があり、そこには前回の訪問時にも行っていたのですがプンダン区庁はその間に存在しています。またその並び沿いに川があり郊外の方に行くとまだ自然が残っているような印象もありました。改札は地下にあるのですがそこから書店に入ることが出来るようになっておりこれはロッテデパートの一部であることが分かりました。
 
@@ -113,6 +125,14 @@
 ![23](23.jpg)
 
 ![24](24.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-41.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-42.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-43.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-44.mp4)
 
 先に書いたように規定のチェックイン時間は18時だったので先に夕食を済ませることにしました。上に書いた飲食店通りやその通りに面するビルの内部等食事をする場所は無数にあるように思われました。しばらく歩いていると「ポンガ(本家?)へジャンク(酔い醒しスープ)」というものとその価格が印刷された掲示物が見えそこは何となく入りやすそうな店だったのでそこに決めました。(その掲示物には他にも色々とメニューが書かれていました)後でレシートを見て調べてみましたが、下記の「장수본가해장국」という店だと思います。
 
@@ -127,6 +147,12 @@
 ![g6](g6.jpg)
 
 ![g7](g7.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-45.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-46.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-47.mp4)
 
 それからまた少し歩きましたが、少し早く行ってもチェックイン出来るだろうと思い飲食店街側の入口からモーテルに入るとそこは駐車場になっており自動車を回転させる台のようなものが地面に埋め込まれていました。
 
@@ -147,6 +173,16 @@
 ![31](31.jpg)
 
 ![32](32.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-59.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-60.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-61.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-62.mp4)
+
+[:movie_camera: 関連動画5](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul09-63.mp4)
 
 ### 2024年7月9日
 昨日の旅の疲れがまだ残っていましたがいつものようにかなり早い時刻に起床し、備え付けられていた個包装のインスタントコーヒーを作り、「エース」を浸して食べました。以前韓国語でネイバーの本社を見るつもりだと書いていたので調べると前日の晩に見た川沿いの道を歩いていけば日が昇る頃には到着できるような感じだったので早速出発することにしました。川沿いの、車道の脇にある歩道を歩いていきましたが、土手の中の草が生い茂る中を散歩されている方々がおられたのでどうすればそこに行けるのだろうかと不思議に思いました。というのは土手の下に降りる階段にはいずれも「危険」とか書かれたテープが張ってあったからです。後で自分でやってみて気付いたのですがどうも皆そのテープの下をくぐって中に入られていたようです。途中カササギかと思われる(ソンナムFCのマークにもカササギが描かれています)鳥を何度も目にしました。
