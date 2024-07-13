@@ -199,6 +199,8 @@
 
 ![37](37.jpg)
 
+[:movie_camera: 関連動画 :cat: ](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-11.mp4)
+
 またその左手の方には煉瓦で出来た建物が立ち並ぶ区域になっており、駐車場がないからか建物の前に自動車がずらっと、いずれも斜めに路上駐車されていました。そちらの方に入ってみましたが、看板屋があったりしましたがどういう地区なのかはよく分かりませんでした。
 
 ![38](38.jpg)
@@ -208,6 +210,12 @@
 ![40](40.jpg)
 
 ![41](41.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-12.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-13.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-14.mp4)
 
 元の川沿いの道に戻り、携帯電話の地図アプリを頼りに橋を渡って右手に進むと飲食店等が入居する複合ビルがある区域に入りましたがその時間はまだ飲食店は開店していないようでした。(今回いくつもの店でスイカジュースの看板を見たのですがせっかくなので飲んで見みればよかったかなと思います)
 
@@ -219,6 +227,12 @@
 
 ![45](45.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-19.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-20.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-22.mp4)
+
 ネイバー本社ビルの前まで行こうとしましたが、本社ビルの隣の建物で工事を行っていた関係で先に進めそうもなかったので引き返すことにしました。
 
 ![46](46.jpg)
@@ -228,6 +242,10 @@
 ![48](48.jpg)
 
 ![49](49.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-23.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-24.mp4)
 
 今度は対岸沿いの道をスネ方面に歩き出しましたが、既に人々が歩きだしており私を見て頭をポリポリ掻いている方もおられました。
 
