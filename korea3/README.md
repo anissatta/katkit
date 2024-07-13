@@ -193,6 +193,10 @@
 
 ![35](35.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-3.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul10-9.mp4)
+
 私が歩いていた一帯は高層の集合住宅が立ち並んでおり団地を形成しているようでした。各ビルにはビルの名称等が書かれていました。辺りはまだ薄暗かったのですが、教会の近くのスネからネイバー本社に向かって左手の草むらにて猫を見かけそれが大部分が白色の猫だったので本当にホッとした気持ちになりました。
 
 ![36](36.jpg)
@@ -542,6 +546,14 @@
 
 ![b1](b1.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-1.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-4.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-7.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-8.mp4)
+
 まず前日にも行った川沿いのマル公園に行き、そこから道路の方に出て横断歩道を渡ってから車道の反対側にある別の公園を見学することにしました。そこには遊具が設置されており、また隣には恐らくオーダースーツの店がありました。
 
 ![b2](b2.jpg)
@@ -555,6 +567,16 @@
 ![b6](b6.jpg)
 
 ![b7](b7.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-9.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-10.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-11.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-12.mp4)
+
+[:movie_camera: 関連動画5](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-13.mp4)
 
 その奥の方にも歩いて行ってみましたが、住宅街になっており朝から何やらゴミ処理機のようなものを操作されている方がおられました。しばらく行くと道路の右側に大型バスが駐車されており、左側には無人アイスクリーム店のようなものがありました。
 
@@ -580,6 +602,14 @@
 
 ![c7](c7.jpg)
 
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-16.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-17.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-18.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-19.mp4)
+
 更に先に進むと児童図書館があったのでそこの休館日案内を撮影したりしました。
 
 ![c8](c8.jpg)
@@ -589,6 +619,8 @@
 ![d0](d0.jpg)
 
 ![d1](d1.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-20.mp4)
 
 この日の朝ある理由からBP(D)についてブログに書いたのですが、何故かよく分かりませんがそれが人々から受ける敵意を軽減するのに役立ったような気がしました。これは想像ですが、BPについての理解は韓国の方が進んでいるのではないでしょうか。(BPの方も日本より多いのかも知れません)私が日本で彼女を愛していると主張したり、私が餓死するという噂のせいで彼女が心の状態を悪くされてそれが退職の原因となったのではないか、と述べても理解が得られないようなのはその辺に理由がありそうです。(私は自分を典型的なnon-BPだと思います)
 
@@ -611,6 +643,14 @@
 ![d7](d7.jpg)
 
 ![d8](d8.jpg)
+
+[:movie_camera: 関連動画1](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-21.mp4)
+
+[:movie_camera: 関連動画2](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-22.mp4)
+
+[:movie_camera: 関連動画3](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-23.mp4)
+
+[:movie_camera: 関連動画4](https://aikidoabeno.web.fc2.com/_tomb/kard-k3/jul11-24.mp4)
 
 その通りを抜けて更に川岸に行き、橋を渡ってガソリンスタンドの横を通ってスネ方面に向かいました。ただこの日も新聞を買おうと思っていたので区庁の近くだったと思いますがGS25に行くとそこはクレジットカードで決済する無人店であるようだったので諦め、スネ飲食店店街のビル内にあるコンビニに入って見渡してみても新聞は無かったのでそのまま反対側の出入り口から店外に出ました。昨日ポックムパを食べた帰りに寄ったセブンイレブンなら新聞があるんじゃないかと思いそちらにも行ってみましたがそこも無く、店員がこちらを見てニヤニヤしているようにすら思われました。
 
