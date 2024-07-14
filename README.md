@@ -2,6 +2,7 @@
 
 - **UPDATE2:** I even uploaded the videos on YouTube after concatenating 'em into a single vid file: 
   - https://youtu.be/O9tZJC1A11w
+  - NOTE: It's an *unlisted* one.  
 - **UPDATE:** My 3rd visit to Korea: 
   - https://kangdaegae.web.fc2.com/misc/sk3/
 
