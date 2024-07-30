@@ -1,6 +1,8 @@
 # katkit
 
-- :new: A gift for my beloved one, #2, *unfinished* 
+- :new: A gift for my beloved one, #3 
+  - https://anissatta.github.io/katkit/mi-joya/index.html
+- A gift for my beloved one, #2, *unfinished* 
   - https://anissatta.github.io/katkit/kiri/index.html
   - NOTE: *am-somewhat* conquers all.  
 - A gift for my beloved one, #1 
