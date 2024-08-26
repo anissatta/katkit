@@ -1,6 +1,11 @@
 # katkit
 ### NOTE: I quit Amazon on August 8, 2024.  
 
+#### 24. 8. 27 
+- 私がアマゾンから付与されていた下記のメールアドレスですが、ようやく削除されたようです。試しにここに何か送ってみて下さい。
+  - hirosuk@amazon.co.jp
+  - ![aug27](aug27.jpg)
+
 #### 24. 8. 26 
 - https://github.com/anissatta/katkit/tree/main/coevo
 
