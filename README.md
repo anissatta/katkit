@@ -1,6 +1,9 @@
 # katkit
 ### NOTE: I quit Amazon on August 8, 2024.  
 
+#### 24. 8. 26 
+- https://github.com/anissatta/katkit/tree/main/coevo
+
 #### 24. 8. 23 
 - **UPDATE:** 各動画をZIPファイルにまとめたものをGoogle Driveにもアップロードしました。下記リンクをクリックすると右上に出てくるダウンロードボタンを押し、解凍してから各ファイルを再生して下さい。この方法ですと元の画質(FullHD)で視聴することが出来ます。
   - https://drive.google.com/file/d/17-N1tLDd9UDgoIlWxxXchLnWB6jh7Mw-/view?usp=sharing
